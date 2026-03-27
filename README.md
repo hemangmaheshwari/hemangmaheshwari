@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am currently learning Gen AI<br>I am a Graphic Designer turned Tech Enthusiast
+💻 I am a B.Tech IT student<br>🚀 Learning Gen AI & exploring modern tech trends<br>🎨 I am a creative thinker with experience in thumbnails, posters & visual design<br>🔧 Always learning, building & improving
 
 
 ## 🌐 Socials:
